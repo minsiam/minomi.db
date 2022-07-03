@@ -1,0 +1,1 @@
+Minomi.db All Rights Reserved, before copying contact Discord: minsiam#1793 or Email: minsiamyoongi@gmail.com
